@@ -1,2 +1,1 @@
-Name: Samkelisiwe Hlatshwayo
-Student Number: 10442364
+Samkelisiwe Hlatshwayo st10442364
